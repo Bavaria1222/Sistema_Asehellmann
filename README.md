@@ -1,1 +1,0 @@
-# Sistema_Auto_Gestion_Asehellmann
